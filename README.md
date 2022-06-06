@@ -1,0 +1,3 @@
+- 👋 @Hi-Im-Jony
+- 👀 I’m interested in Computer Science, Weightlifting and Videogames
+- 🌱 I’m currently in my 4th year of Computer Science
